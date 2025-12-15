@@ -1,0 +1,49 @@
+# Roselia – 紫炎
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+すべてを賭け磨き上げた 己が力を
+茨道を幾千と乗り越え
+覚悟の下 満ち満ちてゆく強さ
+類稀なる輝きを放ち
+(Fighting and Fighting)
+止められないわ
+(Flaming and Flaming)
+私自身にも
+沸き立つ想い 天を見上げては
+燃え盛れHigher さらなる高みへ
+魂は紫炎を纏い煌めく
+駆け上がれHigher 喜びに打ち震え
+(Wow wo wow)
+刮目した世界
+芳しく(Get it higher now!)
+誇らしく(Get it higher now!)
+導こう 想像の先へと Stand up
+過去を過去で終わらせない
+敗北も失敗も余すことなく糧にして
+己が持つ 可能性と何処まで行ける?
+ほとばしる期待 全身は滾り
+(Fighting and Fighting)
+奏でゆく音は
+(Flaming and Flaming)
+私を決して
+裏切りはしない 最後の最後まで
+迎え撃てHigher 憚るもの皆
+魂は紫炎を纏い応え
+焼き尽くせHigher 毅然として生まれ来る
+(Wow wo wow)
+絶対的存在
+素晴らしく(Get it higher now!)
+美しく(Get it higher now!)
+強さは 強さを呼び覚ます Stand up
+(Wow wo wow)
+燃え盛れHigher もっともっと高く
+魂は紫炎を纏い煌めく
+駆け上がれ Higher 情熱を廻(めぐ)らせて
+(Wow wo wow)
+轟かせた世界
+芳しく(Get it higher now!)
+誇らしく(Get it higher now!)
+導こう 想像の先へと Stand up
+```
